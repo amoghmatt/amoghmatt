@@ -1,3 +1,3 @@
 Hi 👋🏽
 
-Reach out to me at https://amoghmatt.super.site/
+Checkout out my [Portfolio](https://amoghmatt.work/)
